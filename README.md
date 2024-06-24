@@ -1,2 +1,3 @@
 # Learning_log
-First Project of clg
+Still long way to gooo
+
